@@ -1,2 +1,0 @@
-# ChannelsLogos
-Logos de TV
